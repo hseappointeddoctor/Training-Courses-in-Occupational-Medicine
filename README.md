@@ -1,6 +1,6 @@
 # Training Courses in Occupational Medicine including Health Surveillance
 
-These pages list the forthcoming courses that will be taught by Dr Arun Chind
+These pages list the forthcoming courses that will be taught by Dr Arun Chind, Consultant Occupational Physician
 
 1. HSE Appointed Doctor training compliant with the Ionising Radiation Regulations, 2017 and Appointed Doctor responsibilities (https://www.hse.gov.uk/doctors/about.htm).
 
