@@ -1,4 +1,4 @@
-# Training-Courses-in-Occupational-Medicine-including-Health-Surveillance
+# Training Courses in Occupational Medicine including Health Surveillance
 
 These pages list the forthcoming courses that will be taught by Dr Arun Chind
 
