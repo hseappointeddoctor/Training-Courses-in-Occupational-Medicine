@@ -11,5 +11,5 @@ These pages list the forthcoming courses that will be taught by Dr Arun Chind
 4. Other bespoke training can be negotiated individually.
    
 Contact details for enquiries: Dr Arun Chind, Proshen Health & Risk Consulting Ltd., Wakefield WF2 8AH, England, United Kingdom.
-Email: hseappointeddoctor@gmail.com WhatsApp or Text : 0793-535-2290 
+Email: hseappointeddoctor@gmail.com WhatsApp or Text : 0793-535-2290 (+44-793-535-2290)
 
