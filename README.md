@@ -2,7 +2,7 @@
 
 These pages list the forthcoming courses that will be taught by Dr Arun Chind, Consultant Occupational Physician
 
-1. HSE Appointed Doctor training compliant with the Ionising Radiation Regulations, 2017 and Appointed Doctor responsibilities (https://www.hse.gov.uk/doctors/about.htm).
+1. HSE Appointed Doctor training compliant with the Ionising Radiation Regulations, 2017 (https://www.hse.gov.uk/radiation/ionising/legalbase.htm#relevant) and Appointed Doctor responsibilities (https://www.hse.gov.uk/doctors/about.htm).
 
 2. HSE Appointed Doctor training compliant with the Control of Lead at Work Regulations 2002 (CLAW) and Appointed Doctor responsibilities (https://www.hse.gov.uk/doctors/about.htm)..
 
